@@ -1,4 +1,4 @@
 # 
-Nguyễn Quốc Khải
-Phù Ngọc Hào
-Tạ Đăng Quang
+\n Nguyễn Quốc Khải
+\n Phù Ngọc Hào
+\n Tạ Đăng Quang
